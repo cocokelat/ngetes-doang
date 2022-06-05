@@ -1,1 +1,1 @@
-# ngetes-doang
+# buat ngetes bangkit ya bang
